@@ -7,4 +7,4 @@ Aquela aula dahora sobre GitHub!
 
 ## TODO: Pontos chaves
 
-Nossa, lives na twitch são mt legais.
+Nossa, lives na twitch são mt legais e segue nois @danielhe4rt @stherzada.
